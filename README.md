@@ -39,4 +39,4 @@
 
   Senion technical writer with +20 years of experience.
 
-  **Contact:** [https://www.linkedin.com/in/rodica-buga-610a115b/]
+  **Contact:** https://www.linkedin.com/in/rodica-buga-610a115b/
